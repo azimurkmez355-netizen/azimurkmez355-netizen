@@ -39,4 +39,4 @@
 ---
 
 ### 📫 İletişim
-- E-posta: urkmezaliazim0@gmail.com
+- E-posta: azimurkmez355@gmail.com
